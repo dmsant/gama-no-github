@@ -1,0 +1,1 @@
+O curso é de intensa aprendizagem e ótimos conteúdos!!!
